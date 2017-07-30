@@ -7,5 +7,8 @@ Created as a started to help me get going. Images and howto language coming soon
 ## Help me!
 Use my affiliate link to purchase your [Amazon Echo Dot](http://amzn.to/2tobAZN)
 
+## Yes, I know
+I have a spelling error in the filenames.
+
 ### Thanks!!
 Justin
